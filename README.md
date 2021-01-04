@@ -1,1 +1,1 @@
-# artsytom.github.io
+# artsytom.com
